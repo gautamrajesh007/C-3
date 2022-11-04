@@ -1,4 +1,4 @@
 # trial-gautam007
 Hey there!✌️
 
-Just creating a trial repo for fun and experimenting. Hope ur ok? WTF are waiting for?
+Just creating a trial repo for fun and experimenting. Hope ur ok?
